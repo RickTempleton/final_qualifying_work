@@ -1,1 +1,1 @@
-# final_qualifying_work
+# ВКР 2026 ВМК МГУ
